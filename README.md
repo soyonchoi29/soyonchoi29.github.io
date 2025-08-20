@@ -1,1 +1,1 @@
-# soyonchoi29.github.io
+# soyon.github.io
